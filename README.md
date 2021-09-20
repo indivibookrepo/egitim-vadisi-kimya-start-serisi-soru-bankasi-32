@@ -1,0 +1,1 @@
+# egitim-vadisi-kimya-start-serisi-soru-bankasi-32
